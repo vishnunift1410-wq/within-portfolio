@@ -1,4 +1,4 @@
-# Vishnu Thakur — WITHIN Portfolio
+# Vishnu Singh Visen — WITHIN Portfolio
 
 Portfolio case studies for WITHIN (@withindesignindia). Two campaigns, 664K+ views.
 
